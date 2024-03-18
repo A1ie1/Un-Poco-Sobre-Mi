@@ -12,7 +12,7 @@
 
 En el municipio viven cuatro familias: los Kahnwald, los Nielsen, los Doppler y los Tiedemann. Todas permanecen unidas ante los misteriosos acontecimientos. Sin embargo, todo cambia el día que Mikkel, el hijo menor de la familia Nielsen, desaparece sin dejar rastro.
 
-[Más información sobre Dark]((https://es.wikipedia.org/wiki/Dark_(serie_de_televisión)))
+[Más información sobre Dark](https://www.culturagenial.com/es/serie-dark/)
 
 - Intrigante
 - Compleja
@@ -48,10 +48,10 @@ Defending Jacob es un drama legal que sigue al fiscal Andy Barber y su esposa La
 
 [Más información Defending Jacob](https://es.wikipedia.org/wiki/Defending_Jacob)
 
-    - Drama legal
-    - Suspenso
-    - Fidelidad
-    - Familia
+- Drama legal
+- Suspenso
+- Fidelidad
+- Familia
 
 
 ![3](https://wallpapercave.com/wp/wp6575392.jpg)
